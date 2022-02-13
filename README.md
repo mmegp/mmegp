@@ -1,0 +1,2 @@
+# mmegp
+A project based on metamath.org ; personal new mathematics foundational &amp; other tertium datur openscience theories by Evgeniy Grigoriewitch Phfilippowvv Angarskiy AKA https://beacons.ai/krichuvka vk.com/egphilippov https://linkedin.com/in/egphilippov as of Sunday, February 13 ante de Christ and further since that............................................*lightforcesofallcosmos LIGHT BILDERBERG CLUB RUSSKIY INTERNATIONAL SHARD ANTIHITLERS COALITION AHC45 1945.05.09 DECENTRALIZED AUTONOMOUS ORGANIZATION CREATOR DISCOVERER INVENTOR AUTHOR
